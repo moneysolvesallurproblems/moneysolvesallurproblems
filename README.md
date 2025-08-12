@@ -1,17 +1,9 @@
-<img width="2048" height="471" alt="image" src="https://github.com/user-attachments/assets/03aeb499-f985-4673-90fe-acf70b808978" />
 
-<img width="2048" height="1152" alt="image" src="https://github.com/user-attachments/assets/0be34818-dc6c-4504-85f0-2e928cfb2b3d" />
-<img width="2048" height="158" alt="image" src="https://github.com/user-attachments/assets/bd55f8bc-f07e-4d6a-87e1-456b90e3c159" />
+<img width="1500" height="500" alt="image" src="https://github.com/user-attachments/assets/6a1e0640-1420-441d-a51c-f3ec89bdec3f" />
 
-
+        <img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/74dd9891-7291-4faf-8643-a80f182a1aa7" />
 
 
+───────────────────────────────────                                                                                   feel free to int. if im alone.
 
-
-
-
-
-
-
-<img width="2048" height="344" alt="image" src="https://github.com/user-attachments/assets/ceb0dcf9-05c8-4a75-a1a2-1fc1370f88ff" />
-
+ <img width="1500" height="500" alt="image" src="https://github.com/user-attachments/assets/56e264a0-a98a-439b-b803-1a80a87f44ed" />
