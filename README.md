@@ -24,7 +24,7 @@
 ⠀⠀  ⠀⠀  ⠀⠀minors dni.ㅤㅤself───indulgentㅤㅤ,ㅤㅤ
 
                                                                                                 　     ⠀⠀ ⠀⠀⠀⠀⠀⠀02.
-⠀⠀  ⠀⠀  ⠀⠀⠀⠀  ⠀⠀  ⠀⠀ㅤㅤafrican americanㅤㅤ( ... )ㅤㅤhawaiian.
+⠀⠀  ⠀⠀  ⠀⠀⠀⠀  ⠀⠀  ⠀⠀ㅤㅤhmu. i need friends either on pt or dc.
 ⠀⠀  ⠀  ⠀⠀⠀ ⠀⠀  ⠀⠀  ⠀⠀⠀⠀  ⠀⠀  ⠀⠀⠀
 ⠀  ⠀⠀  ⠀⠀⠀⠀  ⠀⠀  ⠀⠀⠀⠀  ⠀⠀  ⠀⠀⠀⠀  ⠀⠀  ⠀⠀⠀⠀  ⠀⠀  ⠀⠀⠀⠀  ⠀⠀  ⠀⠀⠀⠀  ⠀⠀  ⠀⠀⠀⠀  ⠀⠀  ⠀⠀⠀⠀  ⠀⠀  ⠀⠀⠀  ⠀  ⠀⠀⠀⠀⠀
 <img width="2047" height="430" alt="image" src="https://github.com/user-attachments/assets/9fb33b10-9d26-4da7-a2ff-4db3fba964b8" />
